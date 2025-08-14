@@ -30,10 +30,10 @@ came us and taught us about universal human values that how we spend almost all 
 he introduced himself to us and told all the students to introduce themselves and why we took admission in GNDEC and in IT department and importance of English in our life . 
 ## Chemistry lecture by Karan Bhalla 
 he came and introduced himself to us and also told us to introduce ourselves then he taught us about syllabus and exam pattern of chemistry.
-## lecture by Dr. Priya Darhni 
+## lecture by Dr. Priya Darshni 
 she taught us about moral values that we should understand others problems also. we should not run after physical facilities. we start to play games , watching movies, listening music, over sleeping etc. to avoid depression, stress etc. 
 ## lecture by causmic club 
-They told us about our proficiency test result and then showed us some performance and tells about their club .
+They told us about our proficiency test result and then showed us some performance and tells about their club.They guided us on what type of laptop we should buy ? 
 # Day 5
 ## lecture on P2P by seniors 
 They taught us basics that are used in almost all the coding language. Then taught us a little bit of C++ language. 
@@ -43,7 +43,24 @@ she came and she introduced herself to students and told the students to introdu
 ## Maths lecture by professor Sukhminder Singh 
 He came and he introduced himself to students and told the students to introduce themselves to him and tells us about syllabus. 
 ## BEEE lecture by professor Simranjeet Kaur 
-she taught us about circuit, resistance, conductance, volatage , current and ohm's law . 
+she taught us about circuit, resistance, conductance, voltage , current and ohm's law . 
+## BUDDY4STUDY 
+They told us about Satya scholarship and how to apply for that ? 
 ## lecture by Mr Jasvir Singh Sekhon 
-He taught us about how importance these four years have in our life . 
-## 
+He taught us about how importance these four years have in our life .
+## lecture by Lakhvir Singh Khanna(Incharge -CML) 
+He greeted us then tells us about his club. what event this club had held and the things that are done in this club and tells about NPTEL and the courses we can do to boost our resume and skills and made us join a course called Creative Programming with AI . 
+# Day 7 
+## Lecture by Dr. Amit Kamra (Incharge -DMC)
+He told us about his club and what his club did. How he and his club work hard to promote the GNDEC social media channel and how his club cover every event and post that and how his club promote every event. how they took drone shoots etc.
+## Lecture by Parminder Singh ( Dean Student Welfare) 
+He told us about all the facilities that we have in the college. How many clubs are there in college, society, hostels, canteens, sports clubs etc. He told us about the swimming pools , sports clubs , open theatre , stationary shop etc.
+## Lecture by Dr Randhir Singh 
+He came and told about us about the exam pattern and when we will have exam like MST 1 , MST 2 and Semester exam and the importance of attendance . How many marks of internal and attendance is there ? and many more . 
+## Lecture on Chemistry by Professor Karan Bhalla 
+He taught us water chemistry and the salts present in water that are responsible for hardness of water and told us the molecular formula. Then he thought about permanent hardness and temporary hardness of water. EDTA structure and more about that. 
+## Lecture on Maths by Sukhminder Singh 
+He taught us the formula of differentiation and integration and gave us some questions to solve.
+# Day 8
+## Lecture on BEEE by Professor Simranjeet kaur 
+ At first, she made us recap all the things done in last class then she taught us about resistors in series and parallel then made us do some questions on that topic.
