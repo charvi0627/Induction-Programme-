@@ -26,3 +26,24 @@ came and and greeted us then he taught us the meaning of Ek Onkar and importance
 ## Dr Priya Darshni 
 came us and taught us about universal human values that how we spend almost all of our time for physical facilities and how we think that being rich,doing good in studies, having cars etc . is our basic aspiration but still we are sad and depressed because our basic aspirations should be being happy and prosperous in continuity. we are always angry. we complain that someone said that to us or shouted in us but we didn't try to understand that may their is a reason behind that . we just break all our ties with them we should understand ourselves first before understanding others . 
 # Day 4 
+## English lecture by professor Aastik Sharma 
+he introduced himself to us and told all the students to introduce themselves and why we took admission in GNDEC and in IT department and importance of English in our life . 
+## Chemistry lecture by Karan Bhalla 
+he came and introduced himself to us and also told us to introduce ourselves then he taught us about syllabus and exam pattern of chemistry.
+## lecture by Dr. Priya Darhni 
+she taught us about moral values that we should understand others problems also. we should not run after physical facilities. we start to play games , watching movies, listening music, over sleeping etc. to avoid depression, stress etc. 
+## lecture by causmic club 
+They told us about our proficiency test result and then showed us some performance and tells about their club .
+# Day 5
+## lecture on P2P by seniors 
+They taught us basics that are used in almost all the coding language. Then taught us a little bit of C++ language. 
+## lecture on BEEE by Professor Simranjeet Kaur 
+she came and she introduced herself to students and told the students to introduce themselves to her and tells us about syllabus. 
+# Day 6 
+## Maths lecture by professor Sukhminder Singh 
+He came and he introduced himself to students and told the students to introduce themselves to him and tells us about syllabus. 
+## BEEE lecture by professor Simranjeet Kaur 
+she taught us about circuit, resistance, conductance, volatage , current and ohm's law . 
+## lecture by Mr Jasvir Singh Sekhon 
+He taught us about how importance these four years have in our life . 
+## 
