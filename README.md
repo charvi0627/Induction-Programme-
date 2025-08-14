@@ -20,4 +20,9 @@ Then we went to auditorium there
 he told us about the important of food in our life how the food influence our whole body and even our thinking. we should have balanced diet and eat what suits our body and what is good for our body body. If someone is Lacoste intolerance what alternative they should eat to provide required nutrients to our body 
 ## causmic club 
 Causmic club members came and tells us about their club and introduced us to GitHub and taught us how to use that. 
-
+# Day 3 
+## Dr Jaswinder Singh (Incharge -IAPT) 
+came and and greeted us then he taught us the meaning of Ek Onkar and importance of God in every part of our life. Some Life Stories of Guru Nanak Dev ji and Guru Ram Das ji. Then he tells us how important maths is and how their is maths in everything and he showed us some experiments related to science.
+## Dr Priya Darshni 
+came us and taught us about universal human values that how we spend almost all of our time for physical facilities and how we think that being rich,doing good in studies, having cars etc . is our basic aspiration but still we are sad and depressed because our basic aspirations should be being happy and prosperous in continuity. we are always angry. we complain that someone said that to us or shouted in us but we didn't try to understand that may their is a reason behind that . we just break all our ties with them we should understand ourselves first before understanding others . 
+# Day 4 
